@@ -1,4 +1,4 @@
-- 👋 OHAYOO, I’m Akansha
+- 👋 Hewwo, I’m Akansha
 - 👀 I’m interested in Coding, Gaming and Dancing
 - 🌱 I’m currently learning ****
 - 📫 How to reach me akjain2721@gmail.com
